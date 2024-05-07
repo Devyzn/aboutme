@@ -10,6 +10,10 @@ lived in north carolina most my life but was born in west virginia.
 
 Just call me dev.
 
+
+
+Over 300M+ Visits contributed on Roblox.
+
 ----------------------------------------------------------------------------------------------
 SOCIALS
 
