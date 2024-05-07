@@ -2,10 +2,9 @@ I know C++, C, Golang, JS, Java, Python, C#, Lua, and TS Full stack developer, a
 
 
 
-My Socials:
 
-Discord: devyzn2
+Discord: "devyzn2"
 
-Github: Devyzn
 
-Roblox: LewisCrocetti
+dm for business inquiries.
+
